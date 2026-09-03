@@ -53,6 +53,8 @@ unless my name says otherwise ♡
 you're always welcome to sit with me,
 so don't be afraid to ask!
 
+please do not copy my characters!!
+
 ♡ BYI
 
 please read my straw before interacting!
