@@ -24,7 +24,6 @@ i really dislike rude and mean people, so please be respectful of me and others.
 ♡ identity
 
 pronouns → she/her • they/them
-orientation → demisexual • bisexual • abrosexual • turigirl
 
 «i have a totally reasonable amount of fandoms please ignore the long list below.»
 
@@ -36,13 +35,12 @@ Cold Front • Married in Red • The Freak Circus • Wind Breaker • JJK • 
 ╰┈➤and probably a few fandoms I forgot I was in.
 
 also some old/unfinished fandoms:
-Bendy and the Ink Machine • Undertale • OMORI
-Saiki K. • Yuri!!! on Ice • The Amazing Digital Circus • Kakegurui
+Bendy and the Ink Machine • Undertale • OMORI • Saiki K. • Yuri!!! on Ice • The Amazing Digital Circus • Kakegurui
 
 ♡ games
 
 Pony Town • Brawl Stars • Genshin Impact
-Cookie Run: Kingdom • Project Sekai • Sky
+Cookie Run: Kingdom • Project Sekai • Sky •
 Among Us • and probably more i've forgotten (눈‸눈)
 
 ♡ pony town
