@@ -30,7 +30,7 @@ pronouns → she/her • they/them
 ♡ fandoms
 
 FNAF • Haikyuu!! • Blue Lock • Vanitas no Carte • Naruto • Spy x Family • The Summer Hikaru Died • Blood Money • DDLC • Alien Stage • Death Note • Dead Plate
-Cold Front • Married in Red • The Freak Circus • Wind Breaker • JJK • Demon Slayer • MHA • Gachiakuta • SK8 • Blue Exorcist • Solo Leveling • TBHK • Fire Force • Link Click • Low Time in Twilight • Lacey Games • Ao Haru Ride • Hazbin Hotel 
+Cold Front • Married in Red • The Freak Circus • Wind Breaker • JJK • Demon Slayer • MHA • Gachiakuta • SK8 • Blue Exorcist • Solo Leveling • TBHK • Fire Force • Link Click • Low Time in Twilight • Lacey Games • Ao Haru Ride • Hazbin Hotel • rodamrix among us
 
 ╰┈➤and probably a few fandoms I forgot I was in.
 
