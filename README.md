@@ -76,7 +76,7 @@ people who disrespect boundaries
 basic respect is required.
 
 ♡ THANK YOU FOR VISITING ♡ 
-<img width="1773" height="1237" alt="Image" src="https://github.com/user-attachments/assets/e9b7b054-def5-4246-a662-881d6fb58618" />
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/80ed28ea-e07e-476f-9f79-b1a2b85c5801" />
 if you read all of this...
 
 hi :3
