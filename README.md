@@ -15,7 +15,7 @@ i really appreciate people who are respectful and know how to respect boundaries
 i really dislike rude and mean people, so please be respectful of me and others. ♡
 
 ♡ interests
-
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/7a5d4f15-2019-432f-9ace-c4b37f6bfeb7" />
 🎸 guitar + sketching
 🎮 games
 📺 anime / manga / manhwa
