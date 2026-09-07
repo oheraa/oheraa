@@ -1,6 +1,11 @@
 ★ OHERA'S README!! ★
 
 ୨୧ hii!! i'm ohera, welcome to my little corner of the internet ୨୧
+<img width="735" height="249" alt="Image" src="https://github.com/user-attachments/assets/312c3936-18c2-4e7c-858e-140ae284ab96" />
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/7a5d4f15-2019-432f-9ace-c4b37f6bfeb7" />
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/cd4a5de7-2c17-4024-bae4-1403d354724d" />
+<img width="735" height="511" alt="Image" src="https://github.com/user-attachments/assets/ebb88d6d-8b44-40ee-a6c0-3000d9eb3e19" />
+<img width="1773" height="1237" alt="Image" src="https://github.com/user-attachments/assets/e9b7b054-def5-4246-a662-881d6fb58618" />
 
 ♡ please read my straw before interacting ♡
 
