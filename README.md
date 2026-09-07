@@ -92,3 +92,4 @@ i'm proud of you. ദ്ദി( Ò ,<)~✩‧₊
 "ohera.exe has left the page"
 
 ♡ have a nice day/night!! ♡
+<img width="736" height="397" alt="Image" src="https://github.com/user-attachments/assets/fd69753c-1b7f-4564-a7d3-33d818c593bd" />
