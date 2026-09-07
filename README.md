@@ -1,7 +1,7 @@
 ★ OHERA'S README!! ★
 
 ୨୧ hii!! i'm ohera, welcome to my little corner of the internet ୨୧
-<img width="735" height="249" alt="Image" src="https://github.com/user-attachments/assets/312c3936-18c2-4e7c-858e-140ae284ab96" />
+<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/93bbec7e-6cba-47bd-9baf-c372400e23c0" />
 ♡ please read my straw before interacting ♡
 
 i'm from Türkiye and i speak Turkish + English.
