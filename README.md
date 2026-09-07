@@ -37,6 +37,8 @@ Cold Front • Married in Red • The Freak Circus • Wind Breaker • JJK • 
 also some old/unfinished fandoms:
 Bendy and the Ink Machine • Undertale • OMORI • Saiki K. • Yuri!!! on Ice • The Amazing Digital Circus • Kakegurui
 
+<img width="708" height="236" alt="Image" src="https://github.com/user-attachments/assets/d9647243-b367-40b7-b761-c5a9ff8b226a" />
+
 ♡ games
 
 Pony Town • Brawl Stars • Genshin Impact
