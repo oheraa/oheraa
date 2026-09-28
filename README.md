@@ -2,7 +2,7 @@
 
 ୨୧ hii!! i'm ohera, welcome to my little corner of the internet ୨୧
 <img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/93bbec7e-6cba-47bd-9baf-c372400e23c0" />
-♡ please read my straw before interacting ♡
+♡ please read my README before interacting ♡
 
 i'm from Türkiye and i speak Turkish + English.
 
@@ -23,7 +23,7 @@ i really dislike rude and mean people, so please be respectful of me and others.
 
 ♡ identity
 
-pronouns → she/her • they/them
+pronouns → she/her • they/them • he/him
 
 «i have a totally reasonable amount of fandoms please ignore the long list below.»
 
@@ -55,8 +55,6 @@ so don't be afraid to ask!
 please DO NOT COPY my characters!!
 
 ♡ BYI
-
-please read my straw before interacting!
 
 i'm generally chill, but please respect my pronouns and my boundaries.
 
