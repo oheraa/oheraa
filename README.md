@@ -70,7 +70,7 @@ if you continue to bother me or my friends after i've warned, i won't hesitate t
 
 racists • homophobes • transphobes • ableists
 sexists • pedophiles • harassers
-people who disrespect boundaries
+people who disrespect boundaries • etc.
 
 basic respect is required.
 
