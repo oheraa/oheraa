@@ -1,12 +1,15 @@
 ★ OHERA'S README!! ★
 
 ୨୧ hii!! i'm ohera, welcome to my little corner of the internet ୨୧
+
 <img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/93bbec7e-6cba-47bd-9baf-c372400e23c0" />
+
 ♡ please read my README before interacting ♡
 
 i'm from Türkiye and i speak Turkish + English.
 
 about → just a random person who spends way too much time online (≧∇≦)/
+
 i like drawing, playing guitar, watching anime, reading manga/manhwa, making silly stuff and trying new things, listening to music, playing games and getting attached to fictional characters.
 
 i'm an ENFP and i'm usually pretty friendly, though i can be shy at first.
