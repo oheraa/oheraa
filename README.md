@@ -26,7 +26,7 @@ i really dislike rude and mean people, so please be respectful of me and others.
 
 ♡ identity
 
-pronouns → she/her • they/them • he/him
+pronouns → she/her • he/him
 
 «i have a totally reasonable amount of fandoms please ignore the long list below.»
 
